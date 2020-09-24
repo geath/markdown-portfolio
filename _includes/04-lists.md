@@ -1,0 +1,3 @@
+- Love to read
+- Hate to do nothing
+- Excited to learn new stuff
