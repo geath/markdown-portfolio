@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- Love to read
+- Hate to do nothing
+- Excited to learn new stuff
